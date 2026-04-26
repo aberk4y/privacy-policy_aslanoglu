@@ -1,0 +1,1 @@
+Aslanoğlu Kuyumculuk Privacy Policy
